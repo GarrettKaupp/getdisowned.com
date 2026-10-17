@@ -23,3 +23,7 @@ Channel zero black mirror alike
 Room 104
 Eternal sunshine of the spotless mind
 All the bright places 
+fallen angles 1995
+breakfast club
+blue spring
+Hotel rwanda

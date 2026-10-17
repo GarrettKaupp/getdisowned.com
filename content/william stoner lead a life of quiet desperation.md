@@ -19,7 +19,7 @@ Thoreau's words have resonated across generations. American poet Robert Frost wr
 
 ---
 ### Stoner
-*"Mr. Shakespeare speaks to you across three hundred years, Mr. Stoner; do you hear him? [...] What does he say to you, Mr. Stoner? What does his sonnet mean?"* The words of the English Literature professor Archer Sloane echo through the speechless young mind of William Stoner. At that moment, a fire had been ignited. 
+*"Mr. Shakespeare speaks to you across three hundred years, Mr. Stoner; do you hear him? [...] What does he say to you, Mr. Stoner? What does his sonnet mean?"* The words of the English Literature professor Archer Sloane echo through the speechless young mind of a Stoner. At that moment, a fire had been ignited. 
 
 *Stoner* by John Williams tells the story of William Stoner, who leads a life of quiet desperation in a different way than Thoreau considered. The novel serves to grapple with this quiet desperation, to give the reader a view into the unspoken, invisible world in which one man's interior experience toils over the minutiae of his responsibilities. Zach Woods's contemporary description of internal experience resonates with *Stoner*'s themes, illustrating the puzzle Williams faces with *Stoner*; we are not accustomed to understanding others at such a personal level.
 
